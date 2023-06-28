@@ -1,0 +1,2 @@
+# Onboarding-resource
+Branding Assets
